@@ -4,12 +4,21 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+### In short
 
-### More Information
+I am a very new kind of father, based out of Tokyo. I have been since 2013.
+This site is dedicated to Sean and Leon, my 2 beloved twin sons.
+<br>
+<br>
 
-A place to include any other types of information that you'd like to include about yourself.
+![Tokyo Celtics](https://raw.githubusercontent.com/seanleon/seanleon.github.io/master/images/tokyoceltics.png)
+
+
+Motto: "I am an independent, free, neutral big brother that has positive jamais-vus that feed positively my mind, body and spirit" 
+
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[Email](mailto:julien.hamonic@gmail.com)
+
+ 
