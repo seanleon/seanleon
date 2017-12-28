@@ -6,7 +6,7 @@ permalink: /about/
 
 ### In short
 
-I am a very new kind of father, based out of Tokyo. I have been since 2013.<br>
+I am Julien Hamonic, a very new kind of father, based out of Tokyo. I have been since 2013.<br>
 This site is dedicated to Sean and Leon, my 2 beloved twin sons.
 <br>
 <br>
