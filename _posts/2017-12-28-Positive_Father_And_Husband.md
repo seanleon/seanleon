@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Positive Fathe and Husband
+title: Positive Father and Husband
 ---
 
 
