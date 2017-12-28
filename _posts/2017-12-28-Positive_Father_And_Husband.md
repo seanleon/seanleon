@@ -39,4 +39,4 @@ I have to grow up and decide myself for myself too.
 The main and biggest issue is your kids.
 You might be indeed here to protect them and ensure that they grow up well.
 But what and how to educate them as a father.
-
+ 
