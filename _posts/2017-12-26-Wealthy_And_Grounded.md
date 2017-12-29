@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wealthy and grounded
+title: Wealthy and Grounded
 ---
 
 Perhaps if you could write down and apply every value you would want if you had a new life,
