@@ -1,6 +1,6 @@
 ---
 layout: post
-title: An independent free neutral elder that has jamaisvus feeding positively his mind and body
+title: An Independent Free Neutral Elder Brother that has Jamaisvus Feeding Positively his Mind and Body
 ---
 
 You love this notion of imprint and that's one of your goal to master the dissolution of bad imprints and generation of good ones to ensure a happy fulfilled life to your family.
