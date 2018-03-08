@@ -22,3 +22,6 @@ Motto: "I am an independent, free, neutral big brother that has positive jamais-
 [Email](mailto:julien.hamonic@gmail.com)
 
  
+### Copyrights 
+
+Copyright © 2018 Julien Hamonic. All rights reserved.
