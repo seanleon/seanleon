@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Be sensible
+title: Be sensitive
 ---
 
 Be sensitive.
