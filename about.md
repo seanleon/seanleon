@@ -7,7 +7,8 @@ permalink: /about/
 ### In short
 
 I am Julien Hamonic, a very new kind of father, based out of Tokyo. I have been since 2013.<br>
-This site is dedicated to Sean and Leon, my 2 beloved twin sons.
+This site is dedicated to Sean and Leon, my 2 beloved twin sons.<br>
+Contents: as I live here on Earth through my experiences, I extract lessons and wisdom so that I can grow, ascend and give it back to Sean and Leon and other Earthians.
 <br>
 <br>
 
