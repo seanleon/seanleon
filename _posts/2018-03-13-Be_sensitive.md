@@ -20,7 +20,8 @@ Words can be amazing.
 Because when you uncover their meaning you can discover some great truths and wisdom of Humanity
 
 Why do I like to reduce things to one simple often simplistic scheme?
-That is probably a defense reaction mirroring my parents behavior
+That is probably a defense reaction mirroring my parents behavior.
+
 Of course everybody is limited and biased by his own limited vision but I should detach myself from this simplified view and make it more complex.
 It comes also from the fact that I often was the target of insults in my childhood and I had to put people in simple categories.
 
