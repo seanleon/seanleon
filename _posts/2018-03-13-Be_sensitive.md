@@ -26,7 +26,7 @@ Of course everybody is limited and biased by his own limited vision but I should
 It comes also from the fact that I often was the target of insults in my childhood and I had to put people in simple categories.
 
 Words are energy that can bring you new concepts .
-Be open to new words words in general.
+Be open to new words in general.
 
 In any case you should not talk or speak negative stuff or news
 And you should not be approximative in your speaking
