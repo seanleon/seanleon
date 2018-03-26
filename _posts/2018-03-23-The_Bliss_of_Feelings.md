@@ -25,6 +25,5 @@ Just like when I tried some drug (natural or pharmaceuticals)  to enhance my sen
 
 Ultimately it's not about searching and copypasting but receiving in/by all your feeling capacity.
 
-Ultimately you must be very sensitive in your feelings. 
-and care about your reactions to an action from the universe to learn how to act back on the universe 
+Ultimately you must be very sensitive in your feelings and care about your reactions to an action from the universe to learn how to act back on the universe 
 with your feelings and thought forms.
