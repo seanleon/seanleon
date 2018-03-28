@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Divine consciousness enlightment
+title: Divine consciousness enlightenment
 ---
 
 Objects and features within the world you perceive, you are conscious of, are actually true real objects.
