@@ -4,7 +4,7 @@ title: Do what you feel
 ---
 
 You might have your epilepsy because your sacral and solar plexus were unbalanced.
-You can see it in your timidity and the fact that you block your honnest will and opinion.
+You can see it in your timidity and the fact that you block your honest will and opinion.
 
 Balance your chakras out.
 
@@ -22,5 +22,7 @@ Be convinced by your feelings.
 
 Feelings are always right.
 They come from the omniscient higher self.
+
 You will find an explanation of why you felt this way with 3d elements and that becomes then wisdom for other earthly beings.
+
 3d Explanation of 4d feelings is wisdom considered on Earth as valuable.
