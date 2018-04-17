@@ -3,8 +3,6 @@ layout: post
 title: The Bliss of Feelings (2) 
 ---
 
-The Bliss of Feelings (2)
-
 To feel and to create , to feel what you create is a bliss --
 Executing effectively in 3d what you see in 4d helps you value what you see in your internal ether,
 otherwise you might consider it just the product of your imagination, neglecting it.
