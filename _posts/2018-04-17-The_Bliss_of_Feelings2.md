@@ -25,7 +25,7 @@ Try to think about and visualize and feel the Light pouring into Sean, Leon and 
 
 I think there's a difference between an internal utterance and a real sincere authentic feeling.
 
-To to feel authentically the bliss.
+Try to feel authentically the bliss.
 
 When you meditate, why not reminding yourself of how beautiful your kids are with pictures, 
 sincerely while feeling the love in your heart.
