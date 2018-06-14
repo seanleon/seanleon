@@ -14,7 +14,7 @@ I think I can prevent them by communicating with my auras and telling them to st
 
 I am psychic and my auras are here to tell me to let my psychism express itself, freely.
 
-I should have a strong set of rules to live, to reach ascended and mature people stance to Life.
+I should have a strong set of rules to live, to reach ascension and mature people stance to Life.
 
 What kind of people should I be with?
 Express your talent, that's the only thing you should do.
